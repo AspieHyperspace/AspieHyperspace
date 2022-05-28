@@ -1,5 +1,1 @@
-- 👋 Hi, I’m @AspieHyperspace
-- 👀 I’m interested in a bunch of stuff that can be found at https://aspiehyperspace-interests.carrd.co
-- 🌱 I’m currently learning how to break Modern in Magic: The Gathering.
-- 💞️ I’m looking to collaborate on making the galaxy more autism friendly.
-- 📫 I'm "AspieHyperspace" or some variant thereof on basically every platform. You can learn more about me at https://aspiehyperspace.carrd.co
+Under Construction... Like reality itself.
